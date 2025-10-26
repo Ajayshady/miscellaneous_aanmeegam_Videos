@@ -13,3 +13,5 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 ### Types dasai and how many years
 * [Refer Here](https://www.youtube.com/shorts/V8vW-7kOxY8)
 
+### All planet temples 
+* [Refer Here](https://www.youtube.com/shorts/emLOsKCq2vo)
