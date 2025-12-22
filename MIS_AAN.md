@@ -37,3 +37,10 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 
 ### sinus problem from dr verrababu hospital Sri Bohgar Sugalaya
 * [Refer Here](https://www.youtube.com/shorts/KGSckj6kvWc)
+
+### vole chudi nadi jothidam in vaitheshwaran kovil
+* [Refer Here](https://www.youtube.com/watch?v=-yDCPr795F8)
+* [Refer Here](https://www.youtube.com/watch?v=MPEhcTvuVnc)
+
+### Jaguar Thangam improve hanmai thanam it will lead for long we can do for 1 hour half an hour 
+* [Refer Here](https://www.youtube.com/shorts/qV0MyQjpx5k)
