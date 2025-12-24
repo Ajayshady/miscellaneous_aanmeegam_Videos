@@ -22,6 +22,7 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 * [Refer Here](https://www.youtube.com/watch?v=dpHopVR16Hk)
 
 ### Very important videos types disease they are clearing it
+* bogar mooligai siddha vaithiyasalai 
 * with old style of treatment with ayurveda 
 * Except manjal kamalai means jundice all the disease they are clearing it
 * knee pain or knee thaimanam
@@ -34,6 +35,7 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 * norai eeralgal problems
 * Address Dindukal dsitrict and kuthathupatti area 
 * phone numbers - 7379177790, 9080027981, 9500002738, 9500002739. 
+* phone number - 9600158736  
 
 ### sinus problem from dr verrababu hospital Sri Bohgar Sugalaya
 * [Refer Here](https://www.youtube.com/shorts/KGSckj6kvWc)
