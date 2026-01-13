@@ -46,3 +46,7 @@ This is Full Of AANMEEGAM Vidoes But Not Only Person's It Is All Mix
 
 ### Jaguar Thangam improve hanmai thanam it will lead for long we can do for 1 hour half an hour 
 * [Refer Here](https://www.youtube.com/shorts/qV0MyQjpx5k)
+
+### Accupunture Doctor Parimala Selvi
+* [Refer Here](https://www.youtube.com/shorts/7hORsROH6-M)
+* phone number - 7708211515 
